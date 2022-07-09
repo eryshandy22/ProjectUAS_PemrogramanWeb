@@ -5,11 +5,10 @@
 ### TI.20.A.2
 ### Universitas Pelita Bangsa
 
-## Dokumen PDF
+## Link Youtube
 
 
 ## LINK DOKUMENTASI WEB HOSTING
+http://eryshandy.my.id/
 
-### MENU LOGIN
-### EMAIL ADDRESS : 
-### PASSWORD      : 
+
